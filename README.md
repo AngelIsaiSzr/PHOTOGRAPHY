@@ -29,6 +29,6 @@ If you wish to contribute to the PHOTOGRAPHY project, follow these steps:
 
 ## Contact
 
-If you have any questions or suggestions, feel free to get in touch with our PHOTOGRAPHY team. You can send an email to [contact@photography.com](mailto:contact@photography.com) or visit the website directly at [https://goo.su/KkiYYC](https://goo.su/KkiYYC).
+If you have any questions or suggestions, feel free to get in touch with our PHOTOGRAPHY team. You can send an email to [contact@gmail.com](mailto:contact@gmail.com) or visit the website directly at [https://goo.su/KkiYYC](https://goo.su/KkiYYC).
 
 We hope you enjoy exploring our website and discovering the beauty of our photographs!
